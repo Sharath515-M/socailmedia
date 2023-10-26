@@ -1,1 +1,1 @@
-# socailmedia
+# socialmedia
